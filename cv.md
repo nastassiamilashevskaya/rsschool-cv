@@ -15,7 +15,6 @@ One of the main goals of mine is to gain skills in Rolling Scopes School and get
 I want to develop and become a high-qualified specialist (of course, with good salary :) ).
 I understand that I should work hard to achieve my goals and I'm ready for it. 
 What about character, I think I'm rather easy-going, cool-minded and ambitious person.
-Also, I like coffee very much :)
 
 ## Skills
 
