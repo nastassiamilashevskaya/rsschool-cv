@@ -1,8 +1,8 @@
-# Nastassia Milashevskaya
+# Nastassia Milashevskaya. Resume
 
 ## Contact Info
 
-Source | Adress
+Source | Address
 -------|-------
 Email | nastassianish@gmail.com
 Telegram | [Nastassianish](https://t.me/Nastassianish)
